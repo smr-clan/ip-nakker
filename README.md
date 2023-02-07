@@ -1,2 +1,3 @@
 # ip-nakker
-je kk vader
+op tiktok lol
+tiktok.com/@smr.clan
